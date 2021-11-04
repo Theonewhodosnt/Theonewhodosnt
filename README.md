@@ -1,0 +1,5 @@
+- 👋 Hi, I am The one who knocks
+- 👀 I’m interested in feeling something
+- 🌱 I’m currently learning how to feel feelings
+- 💞️ I’m looking to collaborate on my mental health
+- 📫 How to reach me, you dont
